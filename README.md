@@ -1,4 +1,4 @@
-👋 Hi, I'm @alexmascension (he/him 🏳️‍🌈)
+👋 Hi, I'm @alexmascension (he/they 🏳️‍🌈)
 
 💻 I'm a PhD student at Biodonostia Health Research Institute, in Donostia (Basque Country, Spain)
 
