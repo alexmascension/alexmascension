@@ -1,4 +1,4 @@
-👋 Hi, I'm @alexmascension (he/they 🏳️‍🌈)
+👋 Hi, I'm @alexmascension (they/them)
 
 💻 I'm a Postdoctoral Researcher at Biogipuzkoa Health Research Institute (Basque Country, Spain).
 
